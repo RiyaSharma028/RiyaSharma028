@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **riyasharmaa00028@gmail.com**
 
-- fun fact-** I think I'm funny**
+- fun fact- I think I'm funny🙃
 
 
 <h3 align="left">Languages and Tools:</h3>
